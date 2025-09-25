@@ -21,6 +21,8 @@ This formula is not an arbitrary trick. It arises directly from the structure of
 
 The result is **666**.
 
+![calculate the number of the beast](666.jpg)
+
 ---
 
 ## Why This Method?
