@@ -17,6 +17,7 @@ This formula is not an arbitrary trick. It arises directly from the structure of
 Revelation, especially in chapters 7 and 21, presents several numerical patterns involving 144,000, 12,000, and 144. *The one who has insight* is able to recall these scriptures and recognize their relation.
 
 > 144,000 = 12 × 12,000
+> 
 > 144 = 12 × 12
 
 ---
