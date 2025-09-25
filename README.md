@@ -10,11 +10,14 @@ The calculation can be expressed in one compact identity:
 
 This formula is not an arbitrary trick. It arises directly from the structure of Revelation.
 
-144,000 - 144, subtraction of the number 144 which is a man’s measure, at the same time an angel’s measure, as described in Revelation 21:17 and Ecclesiastes 1:15 says "what is lacking cannout be counted". So 143,856 is a lacking base for further calculation. Daniel 5:27 "TEKEL, you have been weighed in the balance and found lacking" is a similar scripture. Luke 14:28 use the same word Greek word psephisatō for calculation as in Revelation 13:18. The book of Revelation says in the first verse "A revelation by Jesus Christ", so we can take Luke 14:28 and apply it directly to Revelation 13:18, because here it talks about a missing foundation, a bad calculation. The Wild Beast is lacking the spiritual component of 144. Luke 14:29,30 continues "Otherwise, he might lay its foundation but not be able to finish it, and all the onlookers would start to ridicule him, saying: ‘This man started to build but was not able to finish.’" 
+**144,000 – 144**: the subtraction of 144, which is both a man’s measure and an angel’s measure (Revelation 21:17). Ecclesiastes 1:15 says: *“What is lacking cannot be counted.”* Thus, 143,856 becomes a lacking base for further calculation. Daniel 5:27 states: *“TEKEL, you have been weighed in the balance and found lacking,”* which conveys a similar idea. In Luke 14:28 the same Greek verb *psephisatō* (“calculate”) is used as in Revelation 13:18. Since Revelation begins with the words: *“A revelation by Jesus Christ,”* we may apply Luke 14:28 directly to Revelation 13:18: it points to a missing foundation, a flawed calculation. The Wild Beast lacks the spiritual component of 144. Luke 14:29–30 continues: *“Otherwise, he might lay a foundation but not be able to finish it, and all the onlookers would start to ridicule him, saying: ‘This man started to build but was not able to finish.’”*
 
-6 x 6 x 6, a tripple multiplication of imperfection, in contrast to Revelation 21:16, *"12,000 stadia its length and width and height are equal"*. The lacking foundation of 143,856 is divided three times by 6, which reveals the "name" of the Wild Beast, a number full of symbolic meaning, "absolute imperfection".
+**6 × 6 × 6**: a triple multiplication of imperfection, set in contrast to Revelation 21:16: *“12,000 stadia, its length and width and height are equal.”* The lacking base of 143,856 is divided three times by 6, which reveals the “name” of the Wild Beast—666—a number charged with symbolic meaning, the expression of *absolute imperfection.*
 
+Revelation, especially in chapters 7 and 21, presents several numerical patterns involving 144,000, 12,000, and 144. *The one who has insight* is able to recall these scriptures and recognize their relation.
 
+> 144,000 = 12 × 12,000
+> 144 = 12 × 12
 
 ---
 
